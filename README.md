@@ -1,1 +1,0 @@
-# https-beth-lane-ekd8.squarespace.com-template
